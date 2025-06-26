@@ -1,9 +1,8 @@
-## Hi,y'all Josh here:
-I.T student
-I am a frontend web developer
+## Hi,y'all Josh here✌️
+🇰🇪I.T student
+🔥I am a frontend web developer🔰
+😤innovative💡
 # 💫 About Me:
-
-
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/tech.knowhighgy) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/@cluz_ur) 
