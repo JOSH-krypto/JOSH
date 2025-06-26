@@ -1,7 +1,8 @@
 ## Hi,y'all Josh here✌️
-🇰🇪I.T student
+😄I.T student
 🔥I am a frontend web developer🔰
 😤innovative💡
+🧠
 # 💫 About Me:
 
 ## 🌐 Socials:
